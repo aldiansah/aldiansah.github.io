@@ -1,4 +1,3 @@
-# my love birthday
-Selamat ulang tahun sayangku Sefthiani WP!
-
+# my sunshine birthday
+Selamat ulang tahun Tina Dwi Lestari
 https://aldiansah.github.io/
